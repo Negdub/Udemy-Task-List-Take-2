@@ -1,1 +1,3 @@
 Udemy Task List Take 2
+just me following a guy on video
+feels like im learning but not at the same time idk...
